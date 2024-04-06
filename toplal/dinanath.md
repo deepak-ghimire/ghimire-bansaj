@@ -1,4 +1,18 @@
-Dinanath Ghimire
+## Ghanshyam/Toplal/Dinanath
 
-1.Netra Lal Ghimire
-2. 
+### Netra Lal + Balkumari 
+  * Rita
+  * Deepak + Aarati
+    * Aaditya
+
+### Prem Lal + Maya
+  * Ashok + Sunita
+    * Anshu
+    * Kaushal
+  * Raju + Bhumika
+    * Aarav
+  * Anil + Bishnu
+    * Abhinav
+
+### GyanKala
+### San didi

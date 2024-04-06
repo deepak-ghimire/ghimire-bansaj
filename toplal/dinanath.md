@@ -1,17 +1,17 @@
 ## Ghanshyam/Toplal/Dinanath
 
-### Netra Lal + Balkumari 
+### Netra Lal + Balkumari Gyawali
   * Rita
-  * Deepak + Aarati
+  * Deepak + Aarati Parajuli
     * Aaditya
 
-### Prem Lal + Maya
-  * Ashok + Sunita
+### Prem Lal + Maya ???
+  * Ashok + Sunita ???
     * Anshu
     * Kaushal
-  * Raju + Bhumika
+  * Raju + Bhumika ???
     * Aarav
-  * Anil + Bishnu
+  * Anil + Bishnu ???
     * Abhinav
 
 ### GyanKala
